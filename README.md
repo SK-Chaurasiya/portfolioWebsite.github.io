@@ -6,4 +6,14 @@ Porfilolio for developers
 
 ![hat](https://user-images.githubusercontent.com/97239651/197729925-a6b0028f-2391-424f-b6a4-385b3115a0fd.PNG)
 
+Small Device preview >>>>
+
 ![designer](https://user-images.githubusercontent.com/97239651/197729916-0f63d2a4-1033-4e07-a6b8-b5db79a5030c.PNG)
+
+
+Special Gift >>> https://rb.gy/5y76a
+CodePen >>> https://codepen.io/sk-chaurasiya
+YouTube >>> Devil is Waiting.
+Any Work >>> https://www.fiverr.com/share/WYVQzR (Web Animation)
+
+All CopyRight has Received in 2021 By Unknow Developer.
