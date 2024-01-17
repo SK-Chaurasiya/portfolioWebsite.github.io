@@ -13,12 +13,12 @@ Small Device Preview >>>>
 
 Demo: https://sk-chaurasiya.github.io/portfolioWebsite.github.io/
 
-Special Gift >>> https://rb.gy/5y76a
-
 CodePen >>> https://codepen.io/sk-chaurasiya
 
-YouTube >>> Devil is Waiting.
+YouTube >>> [Devil is Waiting.](https://www.youtube.com/@deviliswaiting2478)
 
 Any Work >>> https://www.fiverr.com/share/WYVQzR (Web Animation)
 
-All CopyRight was Received in 2021 By unknown developer.
+All CopyRight was Received in 2021 By an unknown developer.
+
+Thank You!
